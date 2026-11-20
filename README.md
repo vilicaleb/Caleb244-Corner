@@ -7,7 +7,7 @@ haha
 
 <br><br>
 
-<img width="588" height="516" alt="image" src="https://github.com/user-attachments/assets/5733f844-c25c-46ca-a910-ea62ad612530" />
+<img width="479" height="640" alt="image" src="https://github.com/user-attachments/assets/911c357e-d610-49da-8d22-74c3f8662276" />
 
 <br><br>
 
